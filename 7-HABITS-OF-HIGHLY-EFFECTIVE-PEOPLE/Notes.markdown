@@ -62,6 +62,7 @@
 * Maintaining a balance between the golden egg (production) and the health and welfare of the goose (production capability) is difficult, but it is the very essence of effectiveness.
 * Be patient with yourself. Self-growth is tender; it is holy ground. There's no greater investment.
 
+### Part Two: Private Victory
 
 #### Habit 1: Be proactive
 
