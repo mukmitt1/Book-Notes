@@ -133,13 +133,17 @@
 
 #### Habit 2: Begin with the End in Mind
 
-* The most fundamental application of this habit is to begin today with the image, picture, or paradigm of the end of your life as the frame of reference or criterion by which everything else is examined.
-* This ensures that each day does not violate the criteria you define as most important, and that each day contributes meaningfully to the vision you have of your life as a whole.
+* The most fundamental application of this habit is to begin today with the image, picture, or paradigm of the end of your life as the frame of reference or criterion by which everything else is examined
+  * Each part of your life - today's behavior, tomorrow's behavior, next week, next month behavior - can be examined in context of whole or what really matters most to you.
+  * This ensures that each day does not violate the criteria you define as most important, and that each day contributes meaningfully to the vision you have of your life as a whole.
+* How different our lives are when we really know what is deeply important to us, keeping that picture in mind, we manage ourselves each day to be and to do whats really matter most
 * If a ladder is not leaning against the right wall, then every step we take up it just takes us to the wrong place faster.
+  * we may be very busy, very efficient, but we will be truely effective only when we begin the the end in mind 
 * "Begin with the end in mind" is based on the principle that all things are created twice: There's a mental creation first, and a physical creation second.
-* We are either the second creation of our own proactive design, or we are the second creation of other people's agendas, of circumstances, or of past habits. 
+* We are either the second creation of our own proactive design, or we are the second creation of other people's agendas, of circumstances, or of past habits.  
 * Management is the bottom-line focus: How can I best accomplish certain things? Leadership is a top-line focus: What do I want to accomplish?
 * If industries do not monitor their environment, including their own work teams, and exercise the creative leadership to head in the right direction, then no amount of management expertise can save them.
+* Management is efficiency in climbing the ladder of success. Leadership determines whether the leader is leaning against the right wall
 * Leadership is even more lacking in our personal lives. We're into managing with efficiency, setting and achieving goals before we have even clarified our values.
 * Use your imagination and creativity to write new scripts for yourself that are more effective, more congruent with our values and the principles that give our values meaning.
 * By writing a new script, you can live out of your imagination instead of your memory, and tie yourself to your limitless potential instead of your limiting past. You can become your own first creator.
