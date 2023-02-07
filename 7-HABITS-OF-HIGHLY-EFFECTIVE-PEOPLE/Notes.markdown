@@ -115,5 +115,3 @@
   * I'll be happy when I have my house paid off
 * Circle of influence filled with be - I can be more patient, be wise, be loving
 * Various ways to work in circle of influence - better listener, loving marriage partner, better student, dedicated employee 
-
-![image](https://user-images.githubusercontent.com/76959601/217321861-e60b4bdd-39cb-456b-ae6c-f69da386fafb.png)
