@@ -115,4 +115,17 @@
   * If only I had a more patient husband…
   * I'll be happy when I have my house paid off
 * Circle of influence filled with be - I can be more patient, be wise, be loving
-* Various ways to work in circle of influence - better listener, loving marriage partner, better student, dedicated employee 
+* Various ways to work in circle of influence - better listener, loving marriage partner, better student, dedicreactively ated employee 
+
+
+* **30 days test**
+  * Full day listen to yoru language and language of other people around you. How long listen reactive phase I can't, If only, I Have to
+  * Identify an experience based on past experience you are behaving reactively 
+    * Based on circle of Infleunce, How could you response proactively. 
+    * Take several moments and create the experience vividly in your mind, picturing yourself responding in proactive manner. 
+    * Remind yourself the gap between stimulus and response. 
+    * Make a commitment to yourself to exercise your freedom to choose
+  * Select a problem from your work or personal life trhat is frustrating you
+    * Determine if it is direct, indirect or no control problem
+    * Indentify the first step you can take in circle of influence to solve it and then take next step
+  *  Be aware of change in Circle of Infleuence    
