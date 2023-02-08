@@ -145,6 +145,9 @@
 * If industries do not monitor their environment, including their own work teams, and exercise the creative leadership to head in the right direction, then no amount of management expertise can save them.
 * Management is efficiency in climbing the ladder of success. Leadership determines whether the leader is leaning against the right wall
 * Leadership is even more lacking in our personal lives. We're into managing with efficiency, setting and achieving goals before we have even clarified our values.
+* Leader is the one who climb the tallest tree, surveys the entire situation, and yells "wrong Jungle"
+* Leadership is hard because we are often caught in management paradigm
+* Parents are also trapped in management pradigm, thinking of control, efficiency and rules instead of direction, purpose and family feeling
 * Use your imagination and creativity to write new scripts for yourself that are more effective, more congruent with our values and the principles that give our values meaning.
 * By writing a new script, you can live out of your imagination instead of your memory, and tie yourself to your limitless potential instead of your limiting past. You can become your own first creator.
 * Once you have a sense of mission, you have the essence of your own proactivity; you have vision and values to direct your life.
