@@ -216,6 +216,13 @@
 * self mastery & self-discipline are the foundation of good relationship with others
 * Most important ingradients we put into relationship is not what we say or do, but what we are. If our actions come from personality Ethic rather than from character Ethics, others will sense that duplicity
 * In an interdependence situation, golden eggs are effectiveness and wonderful synergy,the result created by open communication and postive interaction with others. Just to take care of goose, we need to create and care for relationships.
-* An Emotional Bank Account is a metaphor that describe the amount of trust thats been built up in a relationship
-* 6 major deposit in account:
-* Understanding the individual: may be going for a walk, eat icecream together, working on common project
+* An Emotional Bank Account is a metaphor that describe the amount of trust . breaking one is wuthats been built up in a relationship
+* 6 major deposit that builds the emotional bank account:
+* Understanding the individual: may be going for a walk, eat icecream together, working on common project. Principle of making what is important to the other person as important to you as other person is to you.
+* Attending the little things: little kindness, courtesies so important for deposit
+* keeping commitment: keeping promise is a major deposit. breaking promise is major withdrawal
+* clarifying expectation: 
+* showing personal integrity: such as loyal to those who are not present, 
+* Apologizing sincerely when you make a withdrawl:
+* Laws of love & laws of life: when we truly love others without condition, with strings, we help them feel secure and safe and validated and affirmed in their essential worth, identity and integrity
+* P Problems are PC oppertunities
