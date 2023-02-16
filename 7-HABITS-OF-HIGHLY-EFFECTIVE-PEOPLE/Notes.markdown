@@ -209,3 +209,11 @@
 * With stewardship delegation, you must communicate the desired results without focusing on methods, guidelines while identifying paths to failure, resources available, standards for evaluating results, and consequences from the evaluation.
 * Trust is the highest form of human motivation and brings out the very best in people, but you may have to train people so that their competency can rise to the level of trust.
 * Stewardship delegation applies to any kind of person or situation: you simply ramp up or down the desired results, resources, accountability interviews, and consequences.
+
+#### Paradigms of Interdependence
+
+* Effective interdependence can only be built on  a foundation of true independence
+* self mastery & self-discipline are the foundation of good relationship with others
+* Most important ingradients we put into relationship is not what we say or do, but what we are. If our actions come from personality Ethic rather than from character Ethics, others will sense that duplicity
+* In an interdependence situation, golden eggs are effectiveness and wonderful synergy,the result created by open communication and postive interaction with others. Just to take care of goose, we need to create and care for relationships.
+* An Emotional Bank Account is a metaphor that describe the amount of trust thats been built up in a relationship
