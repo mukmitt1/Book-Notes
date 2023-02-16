@@ -217,3 +217,5 @@
 * Most important ingradients we put into relationship is not what we say or do, but what we are. If our actions come from personality Ethic rather than from character Ethics, others will sense that duplicity
 * In an interdependence situation, golden eggs are effectiveness and wonderful synergy,the result created by open communication and postive interaction with others. Just to take care of goose, we need to create and care for relationships.
 * An Emotional Bank Account is a metaphor that describe the amount of trust thats been built up in a relationship
+* 6 major deposit in account:
+* Understanding the individual: may be going for a walk, eat icecream together, working on common project
