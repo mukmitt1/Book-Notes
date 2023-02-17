@@ -237,3 +237,15 @@
   * Win
   * No Deal or win/win 
 * Think win/win is the habit of interpersonal leadership
+* Effective interpersonal leadership requires vision, proactive initiative and the security, guidance,wisdom and the power that come from principle centered personal leadership
+* win/win embraces 5 interdependent  dimensions of life
+  * character
+  * relationship
+  * agreements
+  * supportive systems
+  * processes
+* character is the foundation of win/win. 3 character traits essential to the win/win paradigm:
+  * Integrity: Habit 1,2, 3 help us develop and maintain integrity. 
+  * Maturity: the balance between courage and considerations. courage is providing golden egg. Consideration deals with longterm welfare of other staeholders
+  * Abundance mentality: plenty out there for everybody   
+* Relationship: we build and msintain win/win relationship. The trust, emotional bank account is the essense for win/win
