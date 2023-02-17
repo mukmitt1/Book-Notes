@@ -226,3 +226,13 @@
 * Apologizing sincerely when you make a withdrawl:
 * Laws of love & laws of life: when we truly love others without condition, with strings, we help them feel secure and safe and validated and affirmed in their essential worth, identity and integrity
 * P Problems are PC oppertunities
+
+#### Habit 4: Think win/win
+
+* 6 paradigms of human interactions
+ * Win/Win
+ * Win/Lose
+ * Lose/Win
+ * Lose/Lose
+ * Win
+ * No Deal oe win/win 
