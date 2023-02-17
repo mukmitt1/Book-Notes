@@ -230,9 +230,10 @@
 #### Habit 4: Think win/win
 
 * 6 paradigms of human interactions
-  * Win/Win
-  * Win/Lose
-  * Lose/Win
-  * Lose/Lose
+  * Win/Win: All parties feel good. Win/Win may be use as 3rd alternative - not your way or my way
+  * Win/Lose: I get my ways, you didn't get yours. Win/lose people are prone to use position, power, credential, positions, personalities to get their way. win/lose is low trust situation
+  * Lose/Win:worst than win/lose because it has no standards, no vision, no expectations. win/lose people love lose/win people 
+  * Lose/Lose: when 2 win/lose people(stubborn, ego-invested, determined, individual interact) get together, result will be lose/lose
   * Win
-  * No Deal oe win/win 
+  * No Deal or win/win 
+* Think win/win is the habit of interpersonal leadership
