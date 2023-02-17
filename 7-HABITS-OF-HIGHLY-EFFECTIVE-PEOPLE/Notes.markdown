@@ -230,13 +230,13 @@
 #### Habit 4: Think win/win
 
 * 6 paradigms of human interactions
-  * Win/Win: All parties feel good. Win/Win may be use as 3rd alternative - not your way or my way
+  * Win/Win: All parties feel good. Solution is mutually benefitial. Win/Win may be use as 3rd alternative - not your way or my way. 
   * Win/Lose: I get my ways, you didn't get yours. Win/lose people are prone to use position, power, credential, positions, personalities to get their way. win/lose is low trust situation
   * Lose/Win:worst than win/lose because it has no standards, no vision, no expectations. win/lose people love lose/win people 
   * Lose/Lose: when 2 win/lose people(stubborn, ego-invested, determined, individual interact) get together, result will be lose/lose
   * Win
   * No Deal or win/win 
-* Think win/win is the habit of interpersonal leadership
+* Think win/win is the habit of interpersonal leadership. It involves unique human endowments - self-awareness, imagination, conscience, independent will
 * Effective interpersonal leadership requires vision, proactive initiative and the security, guidance,wisdom and the power that come from principle centered personal leadership
 * win/win embraces 5 interdependent  dimensions of life
   * character
@@ -248,4 +248,9 @@
   * Integrity: Habit 1,2, 3 help us develop and maintain integrity. 
   * Maturity: the balance between courage and considerations. courage is providing golden egg. Consideration deals with longterm welfare of other staeholders
   * Abundance mentality: plenty out there for everybody   
-* Relationship: we build and msintain win/win relationship. The trust, emotional bank account is the essense for win/win
+* Relationship: we build and maintain win/win relationship. The trust, emotional bank account is the essense for win/win
+* In order to secure Win/Win agreements, one must really seek to understand the other party’s point of view. You must detach the person from the problem, and seek to procure mutually beneficial outcomes for all parties based on their interests, not their personalities
+* Win/Win is a public victory. A Public Victory does not mean victory over other people. It means success in effective interaction that brings mutually beneficial results to everyone involved. Win/Win is a paradigm of human interaction that focuses on securing mutually beneficial outcomes.
+* In the long run, anything less than Win/Win in an interdependent reality is a poor second best. If both parties do not mutually benefit in an interdependent situation, both parties will ultimately lose in the long run.
+* Creating Win/Win agreements requires a focus on results, not methods. Hold people accountable for the outcomes, and reduce the focus on how they achieve those outcomes, within the specified guidelines, and with the requisite resources. By holding them accountable for results, there is reduced need for micro-management. People will evaluate themselves, and hold themselves accountable for achieving the agreed-upon outcomes.
+* You can only achieve Win/Win solutions with Win/Win processes – the end and the means are the same.
