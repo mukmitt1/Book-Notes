@@ -230,9 +230,9 @@
 #### Habit 4: Think win/win
 
 * 6 paradigms of human interactions
- * Win/Win
- * Win/Lose
- * Lose/Win
- * Lose/Lose
- * Win
- * No Deal oe win/win 
+  * Win/Win
+  * Win/Lose
+  * Lose/Win
+  * Lose/Lose
+  * Win
+  * No Deal oe win/win 
