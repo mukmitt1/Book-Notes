@@ -262,3 +262,10 @@
 * You can only achieve Win/Win solutions with Win/Win processes – the end and the means are the same.
 * Win/Win is based on the paradigm that there is plenty for everybody, that one person’s success is not achieved at the expense or exclusion of the success of others.
 * In the long run, if it isn’t a win for both of us, we both lose. That’s why Win/Win is the only real alternative in interdependent realities.
+* The Reward System is a key element in the Win/Win model. Talking Win/Win but rewarding Win/Lose results in negating the Win/Win paradigm.
+* The Win/Win process has four steps.
+  * See the problem from the other point of view, in terms of the needs and concerns of the other party.
+  * Identify the key issues and concerns (not positions) involved.
+  * Determine what results would make a fully acceptable solution.
+  * Identify new options to achieve those results.
+* Win/Win is not a personality technique. It's a total paradigm of human interaction. 
