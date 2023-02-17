@@ -253,6 +253,12 @@
 * Win/Win is a public victory. A Public Victory does not mean victory over other people. It means success in effective interaction that brings mutually beneficial results to everyone involved. Win/Win is a paradigm of human interaction that focuses on securing mutually beneficial outcomes.
 * In the long run, anything less than Win/Win in an interdependent reality is a poor second best. If both parties do not mutually benefit in an interdependent situation, both parties will ultimately lose in the long run.
 * Creating Win/Win agreements requires a focus on results, not methods. Hold people accountable for the outcomes, and reduce the focus on how they achieve those outcomes, within the specified guidelines, and with the requisite resources. By holding them accountable for results, there is reduced need for micro-management. People will evaluate themselves, and hold themselves accountable for achieving the agreed-upon outcomes.
+* Elements Essential to Win/Win Agreements
+  * Desired Results (focus on outcome not method)
+  * Guidelines: focus on policies, principles etc
+  * Resources: Identifies Human, financial, technical and organizational 
+  * Accountability: Setup standard and time of evaluations
+  * Consequences: good/bad, natural/logical what does and will happen as a result of evaluation
 * You can only achieve Win/Win solutions with Win/Win processes – the end and the means are the same.
 * Win/Win is based on the paradigm that there is plenty for everybody, that one person’s success is not achieved at the expense or exclusion of the success of others.
 * In the long run, if it isn’t a win for both of us, we both lose. That’s why Win/Win is the only real alternative in interdependent realities.
