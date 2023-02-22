@@ -265,7 +265,25 @@
 * The Reward System is a key element in the Win/Win model. Talking Win/Win but rewarding Win/Lose results in negating the Win/Win paradigm.
 * The Win/Win process has four steps.
   * See the problem from the other point of view, in terms of the needs and concerns of the other party.
-  * Identify the key issues and concerns (not positions) involved.
+  * Identify the key issues and concerns . we (not positions) involved.
   * Determine what results would make a fully acceptable solution.
-  * Identify new options to achieve those results.
+  * Identify new options to achieve t,hose results.
 * Win/Win is not a personality technique. It's a total paradigm of human interaction. 
+
+#### Habit 5: Seek first to understand, then to be understood
+
+* Seek first to understand then to be understood. This principle is the key to effective interpersonal communication
+* communication is the most important skill in life. we always learn read/write but not listening skill
+* If you want to build effective interpersonal communication, you have to build empathic listening that inspires openness & trust
+* seek first to understand involves a very deep shift in paradigm. we typically seek first to understood. 
+* listening has 4 levels - ignoring, pretending, selective listening, attentive listening, empathic listening
+* In empathic listening, get inside another person shoe. also listening with your eye & with your heart
+* Empathic listening is, im and of itself, a tremendous deposit is Emotional bank account
+* when we listen with empathy to another person, we give them personal psycological air.
+* amateur salesperson sells product, professional sells solutions to need & problem
+* 4 autobiographical responses
+  * evaluate : either agree or disagree
+  * probe: we ask question from our own frame of reference
+  * advise: give councel based on our own experience
+  * interpret: try to figure people out 
+
