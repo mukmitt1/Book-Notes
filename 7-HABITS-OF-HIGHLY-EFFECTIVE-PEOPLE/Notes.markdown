@@ -307,5 +307,5 @@
 
 ### Part Four: Renewals
 
-#### Habit 7:Sharpen the Saw
+#### Habit 7: Sharpen the Saw
 
