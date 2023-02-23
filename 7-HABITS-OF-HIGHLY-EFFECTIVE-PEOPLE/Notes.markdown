@@ -287,3 +287,16 @@
   * advise: give councel based on our own experience
   * interpret: try to figure people out 
 
+#### Habit 6: Synergize
+
+* synergy means “two heads are better than one.” Synergize is the habit of creative cooperation
+* It is teamwork, open-mindedness, and the adventure of finding new solutions to old problems.
+* Together, they can produce far better results than they could individually. 
+* It is the idea that the whole is greater than the sum of the parts. One plus one equals three, or six, or sixty—you name it.
+* When people begin to interact together genuinely, and they’re open to each other’s influence, they begin to gain new insight.
+* The capability of inventing new approaches is increased exponentially because of differences.
+* Valuing differences is what really drives synergy. Do you truly value the mental, emotional, and psychological differences among people?
+* Differences should be seen as strengths, not weaknesses
+* Synergy is not the same as compromise. In a compromise, one plus one equals one and a half at best.
+* synergy depends on win-win, seek first to understandm then to be understood
+* Synergy is the essence of principle-centered leadership
