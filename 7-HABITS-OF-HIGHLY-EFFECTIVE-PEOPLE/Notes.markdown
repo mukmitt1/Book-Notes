@@ -300,3 +300,8 @@
 * Synergy is not the same as compromise. In a compromise, one plus one equals one and a half at best.
 * synergy depends on win-win, seek first to understandm then to be understood
 * Synergy is the essence of principle-centered leadership
+* closely trust is related to different level of communication
+  * lowest level of communication, low-trust situation characterized by defensiveness, protectiveness and legalistic language. such communication produces only Win/Lose or Lose/Win or LLose
+  * Middle position is respectful communication. Fairly mature people interect. Avoid ugly confrontation. communicate politely but not empathically. It produces a low form of win/win
+  * Synergy means 1 + 1 equals 8,16 or even 1600
+  *  
