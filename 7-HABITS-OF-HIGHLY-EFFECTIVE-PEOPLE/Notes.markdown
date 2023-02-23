@@ -304,4 +304,8 @@
   * lowest level of communication, low-trust situation characterized by defensiveness, protectiveness and legalistic language. such communication produces only Win/Lose or Lose/Win or LLose
   * Middle position is respectful communication. Fairly mature people interect. Avoid ugly confrontation. communicate politely but not empathically. It produces a low form of win/win
   * Synergy means 1 + 1 equals 8,16 or even 1600
-  *  
+
+### Part Four: Renewals
+
+#### Habit 7:Sharpen the Saw
+
