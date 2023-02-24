@@ -334,5 +334,19 @@
   * Strength comes from  muscle resistance exercise like  push ups, pull-ups and sit-ups and from working with weights.
   * When you exercise your patience beyond your past limits, emotionsal fiber is broken, nature overcompensates and next time fiber is stronger.
   * Litrle by little your resting pulse rate will be go down as your heart & oxygen processing system becomes more efficient
-  * Benefit will be on Habit 1  
+  * Benefit will be on development of Habit 1 muscle
+* Spritual Dimension
+  * Spritial dimension provides leadership to your life. It is related to habit 2
+  * Spritual dimension is your core, your center, your commitment to value system.
+  * prayerful meditation meditation 
+  * greate litrature or great music can provide a similar renewal of the spirit for some.
+  * Others who can communicate with nature
+  * One of the story about Arthur Gordon "Turn of the tide" where he feels everything in life is stale and flat. Using spritual renewal he was back to normal. zHis doctor gave 4 prescriptions
+    * Listen carefully: think of lessons the sea taught him - patience, respect, awareness of the interdependence of things
+    * Reaching back to what - thinking childhood memory of good time
+    * Examines your motives
+    * write your worries on sand
+* Mental Dimension
+  * Most of our mental development and study discipline comes from formal education. As soon as we are out of school, many of us let our mind atrophy. We don;t do serious reading, don't explore new subject       
+  * Like the body, television is a good servent but a poor master. we have to practice Habit 3 and manage ourselves effectively
 
