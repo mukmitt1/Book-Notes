@@ -309,3 +309,30 @@
 
 #### Habit 7: Sharpen the Saw
 
+* Sharpen the Saw means preserving and enhancing the greatest asset you have—you. It means having a balanced program for self-renewal in the four areas of your life: physical, social/emotional, mental, and spiritual.
+* As you renew yourself in each of the four areas, you create growth and change in your life.
+* Sharpen the Saw keeps you fresh so you can continue to practice the other six habits.
+* You increase your capacity to produce and handle the challenges around you. Without this renewal, the body becomes weak, the mind mechanical, the emotions raw, the spirit insensitive, and the person selfish.
+* You can pamper yourself mentally and spiritually. Or you can go through life oblivious to your well-being. You can experience vibrant energy. Or you can procrastinate and miss out on the benefits of good health and exercise.
+* Every day provides a new opportunity for renewal—a new opportunity to recharge yourself instead of hitting the wall. 
+* Feeling good doesn't just happen
+  * Body: Excercise, Nutrient, rest, stress management
+  * Heart: consistent deposit in key relationshps, empathy, synergy
+  * Mind: Reading, writing, learning, study, visualizing
+  * sprit: Services, values clarification, inspirational litrature, meditation, nature
+* Habit 7 is personal PC
+* Sharping the saw means, expressing all 4 motivations
+* All are quadrent 2 activities. If we do not do it, we will eventually see ourselves in Quadrent 1,dealing with health problem and crises that comes as natural result of nour neglect
+* good exercise program focus on endurance, flexibility & strength
+  * Endurance comes from cardiovascular efficiencies - ability of your heart to pump blood through your body. Heart is a muscle. we can do rapid walking, running, biking, swimming, cross country skiing and jogging
+    * you are considered minimally fit if you can increase your heart rate at least 100 beats/minute for 30 min
+    * Ideally try to raise heart rate to at least 60% of max pulse rate, top speed  heart can beat
+    * heart rate generally 220 - age. so if you are 40, (220- 40) * 60% = 108
+  * Flexibility comes through stretching. expert recommend warming up before and cooling down/stretching after aerobic exercise
+    *  Before helps loosen and warm the muscles to prepare for vigorous exercise
+    *  After it helps to dissipate the lactic acid so you don't feel sore and stiff
+  * Strength comes from  muscle resistance exercise like  push ups, pull-ups and sit-ups and from working with weights.
+  * When you exercise your patience beyond your past limits, emotionsal fiber is broken, nature overcompensates and next time fiber is stronger.
+  * Litrle by little your resting pulse rate will be go down as your heart & oxygen processing system becomes more efficient
+  * Benefit will be on Habit 1  
+
