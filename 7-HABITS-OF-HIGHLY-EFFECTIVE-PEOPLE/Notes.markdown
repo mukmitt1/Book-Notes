@@ -355,5 +355,8 @@
   * Social/Emotional dimension focuses on Habits 4,5 and 6 centered on the priniciple of interpersonal leadership, empathic communication and creative cooperation
   * Intrinsic security does not come from what other people think of us or how they treat us. It comes from within. It comes from accurate paradigms and correct principles deep in our own mind & heart. It comes from inside-out congruenc
   * Life of integrity is the most fundamental source of personal worth. Piece of mind comes when your life is in harmony with true principles and values
-  * Moving along the upward spiral requires us to learn, commit and do. To keep progessing we must do - learn, commit, do and again learn,commit, do etc
+* Moving along the upward spiral requires us to learn, commit and do. To keep progessing we must do - learn, commit, do and again learn,commit, do etc
+* At some time in your life, you probably had someone believe in you when you didn’t believe in yourself. They scripted you.
+* What if you were a positive scripter, an affirmer, of other people? When they’re being directed by the social mirror to take the lower path, you inspire them toward a higher path because you believe in them. You listen to them and empathize with them. You don’t absolve them of responsibility; you encourage them to be proactive.
+* The more we can see people in terms of their unseen potential, the more we can use our imagination rather than our memory, with our spouse, our children, our coworkers or employees.
 
