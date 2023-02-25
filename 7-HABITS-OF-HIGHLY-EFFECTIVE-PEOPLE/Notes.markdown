@@ -353,6 +353,7 @@
 * Social/Emotional Dimension
   * Physical, spritual and mental dimensionsare related with Habits 1,2 & 3 centered on the principles of personal vision, leadership & management
   * Social/Emotional dimension focuses on Habits 4,5 and 6 centered on the priniciple of interpersonal leadership, empathic communication and creative cooperation
-  * Intrinsic security does not come from what other people think of us or how they treat us. It comes from within. It comes from accurate paradigms and correct principles deep in our own mind & heart. It comes from inside-out congruence
-  * Life of integrity is the most fundamental source of personal worth. Piece of mind comes when your life is in harmony with true principles and values 
+  * Intrinsic security does not come from what other people think of us or how they treat us. It comes from within. It comes from accurate paradigms and correct principles deep in our own mind & heart. It comes from inside-out congruenc
+  * Life of integrity is the most fundamental source of personal worth. Piece of mind comes when your life is in harmony with true principles and values
+  * Moving along the upward spiral requires us to learn, commit and do. To keep progessing we must do - learn, commit, do and again learn,commit, do etc
 
