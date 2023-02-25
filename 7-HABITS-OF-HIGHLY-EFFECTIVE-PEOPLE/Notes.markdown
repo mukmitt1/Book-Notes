@@ -73,7 +73,7 @@
   * Environmental Determinism - ur boss or spouse is doing it to u.
 * Each of above map is based on stimulus/response theorey
 * Frankl quote "Between Stimulus and Response, man has the freedom to  choose"
-* Within freedom to choose are those endowments that make us unique human. We can use self awareness, imagination (create in mind beyond reality)tg, conscience (inner awareness), independent will
+* Within freedom to choose are those endowments that make us unique human. We can use self awareness, imagination (create in mind beyond reality), conscience (inner awareness), independent will
 * Frankl described an accurate self-map from which he began to develop the first and most basic habit of highly effective person, they habit of proactivity
 * As human beings, we are responsible for our own lives. Our behavior is a function of our own decision not our conditions. We can subordinate feelings to value
 * Highly proactive people do not blame circumstances, conditions or conditioning for their behavior.
