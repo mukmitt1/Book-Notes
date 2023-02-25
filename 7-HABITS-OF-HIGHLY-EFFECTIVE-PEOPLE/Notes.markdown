@@ -45,9 +45,9 @@
 * Habits are powerful factors in our lives. Because they are consistent often unconscious patterns, they constantly, daily, express our character and produce our effectiveness or in-effectiveness
 * Habits have tremendous gravity pull
 * Habit is the intersection of knowledge (what to, why to), skills (how to)  and desire (wants to). You need all 3
-* Knowledge is the theoretical paradigm. The what to do & why. 
-* Skill is how to do
-* Desire is motivation
+  * Knowledge is the theoretical paradigm. The what to do & why. 
+  * Skill is how to do
+  * Desire is motivation
 * Maturity Continuum from  dependence --> independent --> interdependence 
   * **In Dependent** -- u take care of me, u come through for me; U didn't come through , I blame u for the results
   * **Independence** - I can do it, I am responsible, I can choose. Do own effort. Impact Physically, mentally, emotionally, financially
