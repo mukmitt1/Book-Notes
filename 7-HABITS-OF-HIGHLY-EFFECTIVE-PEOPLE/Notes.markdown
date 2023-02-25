@@ -359,4 +359,5 @@
 * At some time in your life, you probably had someone believe in you when you didn’t believe in yourself. They scripted you.
 * What if you were a positive scripter, an affirmer, of other people? When they’re being directed by the social mirror to take the lower path, you inspire them toward a higher path because you believe in them. You listen to them and empathize with them. You don’t absolve them of responsibility; you encourage them to be proactive.
 * The more we can see people in terms of their unseen potential, the more we can use our imagination rather than our memory, with our spouse, our children, our coworkers or employees.
+* We can refuse to label them—we can ‘see’ them in new fresh ways each time we’re with them. We can help them become independent, fulfilled people capable of deeply satisfying, enriching, and productive relationships with others.
 
