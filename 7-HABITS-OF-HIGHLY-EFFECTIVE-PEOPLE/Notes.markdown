@@ -348,5 +348,11 @@
     * write your worries on sand
 * Mental Dimension
   * Most of our mental development and study discipline comes from formal education. As soon as we are out of school, many of us let our mind atrophy. We don;t do serious reading, don't explore new subject       
-  * Like the body, television is a good servent but a poor master. we have to practice Habit 3 and manage ourselves effectively
+  * Like the body, television is a good servent but a poor master. we have to practice Habit 3 and manage ourselves effectively to maximize the use of any resource in accomplishing our mission
+  * continuing education, continually honing and expanding the mind
+* Social/Emotional Dimension
+  * Physical, spritual and mental dimensionsare related with Habits 1,2 & 3 centered on the principles of personal vision, leadership & management
+  * Social/Emotional dimension focuses on Habits 4,5 and 6 centered on the priniciple of interpersonal leadership, empathic communication and creative cooperation
+  * Intrinsic security does not come from what other people think of us or how they treat us. It comes from within. It comes from accurate paradigms and correct principles deep in our own mind & heart. It comes from inside-out congruence
+  * Life of integrity is the most fundamental source of personal worth. Piece of mind comes when your life is in harmony with true principles and values 
 
