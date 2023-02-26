@@ -15,7 +15,10 @@
 * People may have secondary (personality) greatness I.e social recognition for the talents - lack primary (character). Soon they will see in every long-term relationship (business, spouse, teenage child, friend)
 * People may have lack of secondary strength (communication) but have character strength. Undoubtedly affect the quality of relationships as well. But the effects are still secondary
 * Paradigm is the map you have in your mind. Maps are assumption of the way things are
-* _We think we see the world as it is, when in fact we see the world as we are._ - Quote Stephen R covey
+* Each of us has many-many mapsin our head, divided into 2 main categories: maps of the way things are or realities, and maps of the way things should be or values
+* we interpret everything we experience through these mental maps 
+* We simple assume that the way we see things is the way they really are or the way they should be.
+* We think we see the world as it is, when in fact we see the world as we are._ - Quote Stephen R covey
 * Once you see things as they really are, you'll think, feel and act differently. 
 * Paradigm is deeper than attitude and behavior
 * Every one of 7 habits represent a principle
