@@ -7,7 +7,8 @@
 * Give our first energies to own character development before we focus on techniques or how to be more effective with others.
 * Focus on roots
 * In last 200 years, first 150 years focus on character ethics as the foundation of success i.e. integrity, humility, courage, justice, patience, simplicity, modesty. Talk about basic principles of effective leaving. People can enjoy true success
-* Last 50 years are personality ethics which is superficial,  filled with social image consciousness, technique and quick fixes with social band-aid
+* Last 50 years are personality ethics which is superficial,  filled with social image consciousness, technique and quick fixes with social band-aid, 
+* Character ethics fouuses on integrity, humility, fidelity, courage, justice, patience, simplicity, modesty
 * To change ourselves effectively, we first have to change our perceptions  i.e glass half empty or half full
 * Personality ethic - how to "appear to be" rather than how to "actually be"
 * Focus on value based motives
