@@ -28,7 +28,7 @@
 * Principles are not value. Gang of thief can share value but they are in violation of fundamental principles. Principles are territory. Values are map
 * We experience everything through two mental maps: Realities, or the way things are, and values, or the way things should be.
 * The influences of our lives, such as family, school, church, work environment, friends, associates, and current social paradigms, have all shaped our frame of reference, our paradigms, and our maps.
-* We see the world not as it is, but as we are. When we describe the world, we describe ourselves, our perceptions, and our paradigms.
+* We see the world not as it is, but as we are conditioned to see it. When we describe the world, we describe ourselves, our perceptions, and our paradigms.
 * The more aware we are of our basic paradigms, the more we can examine them, test them against reality, and listen to others and be open to their perceptions, thereby getting a more objective view.
 * To make a minor change in our lives, we can perhaps focus on our attitudes and behaviors. To make a significant, quantum change, we must focus on our basic paradigms.
 * The Character Ethic is based on the fundamental idea that principles govern human effectiveness. These are natural laws in the human dimension, like Newton's law in the physical dimension.
@@ -364,4 +364,11 @@
 * What if you were a positive scripter, an affirmer, of other people? When they’re being directed by the social mirror to take the lower path, you inspire them toward a higher path because you believe in them. You listen to them and empathize with them. You don’t absolve them of responsibility; you encourage them to be proactive.
 * The more we can see people in terms of their unseen potential, the more we can use our imagination rather than our memory, with our spouse, our children, our coworkers or employees.
 * We can refuse to label them—we can ‘see’ them in new fresh ways each time we’re with them. We can help them become independent, fulfilled people capable of deeply satisfying, enriching, and productive relationships with others.
+
+
+
+**My own Notes
+
+* We shoudl focus on Value based motives
+* Character ethics taught that there are basic principles of effective living 
 
