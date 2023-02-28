@@ -15,6 +15,9 @@
 * People may have secondary (personality) greatness I.e social recognition for the talents - lack primary (character). Soon they will see in every long-term relationship (business, spouse, teenage child, friend)
 * People may have lack of secondary strength (communication) but have character strength. Undoubtedly affect the quality of relationships as well. But the effects are still secondary
 * Paradigm is the map you have in your mind. Maps are assumption of the way things are
+* Example of principles: Principle of fairness (equity and justice is developed), integrity & honesty (create foundation of trust), human-dignity, service, quality, excellence
+* Principle are not practices. A practice that works in one circumstance will not necessary work in another. Practices are situation specific
+* Principle are deep fundamental truth that have universal application
 * Each of us has many-many mapsin our head, divided into 2 main categories: maps of the way things are or realities, and maps of the way things should be or values
 * we interpret everything we experience through these mental maps 
 * We simple assume that the way we see things is the way they really are or the way they should be.
@@ -26,12 +29,13 @@
 * In captain/lighthouse story, lighthouse is principle- we don’t break them. We break ourselves against them.
 * Are my value and habits in alignment with principles and natural laws
 * Principles are not value. Gang of thief can share value but they are in violation of fundamental principles. Principles are territory. Values are map
-* We experience everything through two mental maps: Realities, or the way things are, and values, or the way things should be.
+* when we value correct principles, we have truth
+* We experience everything through two mental maps: Realities or the way things are, and values or the way things should be.
 * The influences of our lives, such as family, school, church, work environment, friends, associates, and current social paradigms, have all shaped our frame of reference, our paradigms, and our maps.
 * We see the world not as it is, but as we are conditioned to see it. When we describe the world, we describe ourselves, our perceptions, and our paradigms.
 * The more aware we are of our basic paradigms, the more we can examine them, test them against reality, and listen to others and be open to their perceptions, thereby getting a more objective view.
 * To make a minor change in our lives, we can perhaps focus on our attitudes and behaviors. To make a significant, quantum change, we must focus on our basic paradigms.
-* The Character Ethic is based on the fundamental idea that principles govern human effectiveness. These are natural laws in the human dimension, like Newton's law in the physical dimension.
+* The Character Ethic is based on the fundamental idea that there are principles that govern human effectiveness. These are natural laws in the human dimension, like Newton's law in the physical dimension.
 * These natural laws are woven into the fabric of every civilized society throughout history and comprise the roots of every family and institution that has endured and prospered.
 * These principles include fairness, integrity and honesty, dignity, service, quality or excellence.
 * Principles are not values. We can hold values that are in violation of these fundamental principles. Principles are the territory, and values are the maps.
@@ -370,5 +374,5 @@
 **My own Notes
 
 * We shoudl focus on Value based motives
-* Character ethics taught that there are basic principles of effective living 
+* Character ethics taught that there are basic principles of effective living
 
