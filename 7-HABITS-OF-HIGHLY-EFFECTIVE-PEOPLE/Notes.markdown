@@ -190,7 +190,7 @@
 
 
 
-#### Habit 3: Put First Things Forst
+#### Habit 3: Put First Things First
 
 * Habit 1 says that you are the creator. Habit 2 is the first or mental creation; it is the deep contact with our basic paradigms and values and the vision of what we can become.
 * Habit 3 is the second or physical creation. It is the fulfillment, the actualization, and the natural emergence of the first two habits.
