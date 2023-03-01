@@ -123,7 +123,8 @@
   * If only I had a more patient husband…
   * I'll be happy when I have my house paid off
 * Circle of influence filled with be - I can be more patient, be wise, be loving
-  * Various ways to work in circle of influence - better listener, loving marriage partner, better student, dedicreactively ated employee 
+  * Various ways to work in circle of influence - better listener, loving marriage partner, better student, dedicreactively ated employee
+  * Person can say deeply and honestly "I am what I am today because of choices I made yesterday"
 
 
 * **30 days test**
