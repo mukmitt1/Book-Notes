@@ -9,7 +9,8 @@
 ### Law of Pure Potentiality or Law of Unity
 
 
-* Law is based on the fac thar We are, in our essential state, pure consciousness
+* Law is based on the fact thar We are, in our essential state, pure consciousness
+* Law is the process by which the unmanifest becomes the manifest
 * Pure consciousness is pure potentiality, it is the field of all possibilities and infinite creativity 
 * Being infinite and unbounded us pure joy
 * Other attribute of consciousness are pure knowledge, infine silence, perfect balance, invincibility, simplicity and bliss
