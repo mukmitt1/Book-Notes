@@ -1,9 +1,10 @@
 ## The Seven Spiritual laws of success
 
 ### Introduction
-* Success in life could be defined as the continued expansion of happiness and the progessive realization of worth goals
+* Success in life could be defined as the continued expansion of happiness and the progessive realization of worthy goals
 * Success is the ability to fulfill your desires with effortless ease
 * Success also includes good health, energy and enthusiasm for life, relationships, creative freedom, emotional and psychological stabilities and piece of mind
+* Success is a journey not destination
 
 ### Law of Pure Potentiality or Law of Unity
 
