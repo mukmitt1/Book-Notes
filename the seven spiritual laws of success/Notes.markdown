@@ -1,12 +1,13 @@
 ## The Seven Spiritual laws of success
 
 ### Introduction
+* It could also be called The Seven Spiritual Laws of Life because nature uses same principles to create everything in material existence - things we can see, hear, smell, taste or touch
 * Success in life could be defined as the continued expansion of happiness and the progessive realization of worthy goals
 * Success is the ability to fulfill your desires with effortless ease
 * Success also includes good health, energy and enthusiasm for life, relationships, creative freedom, emotional and psychological stabilities and piece of mind
 * Success is a journey not destination
 
-### Law of Pure Potentiality or Law of Unity
+### 1. Law of Pure Potentiality or Law of Unity
 
 
 * Law is based on the fact thar We are, in our essential state, pure consciousness
