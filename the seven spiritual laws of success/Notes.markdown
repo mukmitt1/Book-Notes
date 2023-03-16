@@ -2,10 +2,14 @@
 
 ### Introduction
 * It could also be called The Seven Spiritual Laws of Life because nature uses same principles to create everything in material existence - things we can see, hear, smell, taste or touch
+* When this knowledge is incorporated in our consciousness, it will give you the ability to create unlimited wealth with efforless ease 
 * Success in life could be defined as the continued expansion of happiness and the progessive realization of worthy goals
 * Success is the ability to fulfill your desires with effortless ease
+* Succes is not just talking about material wealth
 * Success also includes good health, energy and enthusiasm for life, relationships, creative freedom, emotional and psychological stabilities and piece of mind
 * Success is a journey not destination
+* Law is the process by which unmanifest becomes the manifest, observer becomes observed, dreaamer manifests the dream
+* All of the creation, everything that exist in physical world, is the result of the unmanifest transforming itself to the manifest
 
 ### 1. Law of Pure Potentiality or Law of Unity
 
