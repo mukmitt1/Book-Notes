@@ -17,13 +17,13 @@
 * Law is based on the fact thar We are, in our essential state, pure consciousness
 * Law is the process by which the unmanifest becomes the manifest
 * Pure consciousness is pure potentiality, it is the field of all possibilities and infinite creativity 
-* Being infinite and unbounded us pure joy
+* Being infinite and unbounded, it is also pure joy
 * Other attribute of consciousness are pure knowledge, infine silence, perfect balance, invincibility, simplicity and bliss
 * Self referral : our internal reference point is our own spirit and not the objects of our experience. fearless, no control or struggle for approval
   * soul is completely free of fear, control and approval
   * Immune to criticism
   * Humble and feels superior to non one  
-* Object-refferal: influenced by objects outside the self which includes situations, circumstances, people & things
+* Object-refferal (fear based): influenced by objects outside the self which includes situations, circumstances, people & things
   * we are constantly seeking the approval of others
   * Our thinking and our behavior are always in anticipation of a response. It is therefore fear based
   * we also feel an intense need to control things
