@@ -37,3 +37,13 @@
   *  meditation: Ideally 30 min morning, 30 min evening. You will learn pure silence and awareness. Be still
   *  non-judgement: constant evaluation of things as right or wrong, good or bad. When you are evaluating, classifying, labeling, analyzing, you create lot of turbulence  in internal dialogue
   *  spending time in nature: when you do other, you can start spending time with nature
+
+### 2. The Law of Giving
+
+
+* Also called Law of receiving because the universe operates through dynamic exchange
+* Your body is in dynamic and constant exchange with the body of the universe
+* Your mind is dynamically interacting with the mind of the cosmos
+* Every relationship is one of give and take
+* 
+
