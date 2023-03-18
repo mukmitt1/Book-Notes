@@ -16,7 +16,7 @@
 
 ## Basic Mindfulness Exercises
 
-### 1. Finding the Breath
+### 1. Finding the Breath - 5 min
 
 * Lying flat on your back or standing  or sit in yoga mat or chair
 * allow the eye to close or gazing at the floor or ceiling
@@ -25,3 +25,15 @@
 * Bring your attention to the nortrills. try taking a deep breath to see what is present for you. You may feel slight tickle at the tip of the nose as you breath in. you may feel the breathe is warmer on the way out
 * Rest your awareness on the body breathing in one of the three spots. when the mind wanders, refocus on the direct experience of the breath. continue to observe the breath for minute or two.
 * Try to bring forgiveness, curiosity and patience whenever your mind wanders, bring it back to the breath
+
+### 2. Points of Contact - 5 min
+
+* Body is always contact withs something - chair, ground, bed or air around you. You can feel anytime - in meditation or throughout your daily life. 
+* Try it while sitting
+* Begin by noticing the places where the body is touching something else.can you feel the contact between your feet and the floor? Pay attention to physically feeling of feet. Observe how the feet feel in this moment.
+* continue upto where  you can feel the contact between your rear end and the chair or cushion. Notice the contact & pressure of  the upper thighs with the chair. Mindfully observing what this feels like in the body.
+* Bring the attention to the hands, however they may be resting. Feel the places where hand are touching each other, sitting in the lap or resting on the knees. Focus on whatever part of the hand is in contact with something else.
+* Now see where you can feel the sensation of cloths on the body. Scan the body to see where this sensatation is present. It may be easiest to feel the places where the clothing stops and the skin is exposed such as arm, neck or ankles.
+* Finally bring your awareness to the sentation of air on your skin. You may notice the temperature of the air feels different on the palm of the hand than on the back of the hand. You may feel the wind if you are sitting outside
+*
+*  
