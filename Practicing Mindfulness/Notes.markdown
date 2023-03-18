@@ -35,5 +35,14 @@
 * Bring the attention to the hands, however they may be resting. Feel the places where hand are touching each other, sitting in the lap or resting on the knees. Focus on whatever part of the hand is in contact with something else.
 * Now see where you can feel the sensation of cloths on the body. Scan the body to see where this sensatation is present. It may be easiest to feel the places where the clothing stops and the skin is exposed such as arm, neck or ankles.
 * Finally bring your awareness to the sentation of air on your skin. You may notice the temperature of the air feels different on the palm of the hand than on the back of the hand. You may feel the wind if you are sitting outside
-*
-*  
+  
+### 3. The Power of the Mind - 5 min
+
+* In this exercise you will witness the mind auditory and visual thinking patterns
+* Close the eyes, take a moment to notice how the body is resting. Keep the spine as straight as possible and allow the muscle to relax.
+* With eye closed, try to bring the room or space in which you are sitting. Can you picture where in the room your body is resting? Visualize the room in your mind. Picture the floor, the walls, doors. see what else you can bring up to piece together the space in your mind.
+* Now picture yourself somewhere peaceful.May be a beach, forest, any happy place. Picture the space around you. Bring many detail as possible.
+* Now bring to mind a song to tune you know well. Try to hear the words or melody in your head.
+* Now use the mind to change the experience of hearing the sing. Try to turn the volume down, making the song quiet in your head. Turn the volume up a bit. Investigate what it is like to slow the song down or speed it up.
+* So now with little power, you can visualize, play music, and alter the experience in anyway you choose.
+* Loosing focus: while meditating , you may notice your cincentration slowly leaking. When you loose your focus, bring your attention to the last thing you remember and if not work work return to the breath
