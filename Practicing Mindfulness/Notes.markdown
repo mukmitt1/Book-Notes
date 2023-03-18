@@ -13,3 +13,7 @@
     * **Being Patient**:
     * **Making a Friend**: Kindness is an essential part of practice - starts by being kind of yourself. when practing, respond to your experience with gentleness. Act as if your mind is your friend not an enemy.
     * **Honoring yourself**: just remember mindfulness is practice not a race. Be true of yourself and allow space for growth
+
+## Basic Mindfulness Exercises
+
+###
