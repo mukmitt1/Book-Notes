@@ -16,4 +16,12 @@
 
 ## Basic Mindfulness Exercises
 
-###
+### 1. Finding the Breath
+
+* Lying flat on your back or standing  or sit in yoga mat or chair
+* allow the eye to close or gazing at the floor or ceiling
+* bring your awareness to abdomen. Relaxing the muscle there, see if you can feel the natural rising and falling.Imagine the body is breating itself.From the navel around to the obliques, notice the movement with each breath. Take a few deep breath like this
+* Move your awareness upto the chest. As you inhale tune it to the expansion of lungs and the rising of chest. As you exhale feel the contraction and movement. See if you can follow the feel of breath from the beginning of inhalation to exhalation.
+* Bring your attention to the nortrills. try taking a deep breath to see what is present for you. You may feel slight tickle at the tip of the nose as you breath in. you may feel the breathe is warmer on the way out
+* Rest your awareness on the body breathing in one of the three spots. when the mind wanders, refocus on the direct experience of the breath. continue to observe the breath for minute or two.
+* Try to bring forgiveness, curiosity and patience whenever your mind wanders, bring it back to the breath
