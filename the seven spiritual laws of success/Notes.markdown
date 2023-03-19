@@ -45,5 +45,9 @@
 * Your body is in dynamic and constant exchange with the body of the universe
 * Your mind is dynamically interacting with the mind of the cosmos
 * Every relationship is one of give and take
-* 
+* Move you give, more you will receive
+* Return is directly proportional to giving when it is unconditional and from the heart
+* Relationship is one of give & take.
+* Every seed is the promise of thousands of forest. Seed must not be hoarded. It must give intelligence to the fertile ground
+* If you want joy, give joy to others; if you want love, learn to give love
 
