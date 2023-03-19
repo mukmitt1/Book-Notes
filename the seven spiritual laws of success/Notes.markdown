@@ -50,4 +50,16 @@
 * Relationship is one of give & take.
 * Every seed is the promise of thousands of forest. Seed must not be hoarded. It must give intelligence to the fertile ground
 * If you want joy, give joy to others; if you want love, learn to give love
+* If you want attention & appreciation, learn to give attention & appreciation
+* if you want materially affluence, help others tio become materially affluent
+* If you want to be blessed with all the good things in life, learn to silently bless everyone with all the good thing in life
+* Even thought of giving, the thought of blessing, or a simple prayer has the power to affect others
+* we are bundle of thought in a thinking universe. Thought has the power to transform
+* Best way to put the law of giving into operation - whenever you contact with anyone, you will give them something. It does not have to be material things; could be a flower, compliment, or a prayer; gift of caring, attention, affection, appreciation and love are most precious gifts.
+* when you meet someone, silently send them a blessing, wishing them happiness, joy and laughter. this kind of silent is very powerful
+* Never to go anyone's house without bringing them a gift. you can bring a flower, note or a card, compliment. you can bring a prayer.
+* Appy this
+  * wherever I go, and whoever I encounter, I will being them a gift. Gift may be a compliment, a flower or a prayer.I will bring the process of circulating joy, wealth and  affulence in my life and others
+  * Today I will gracefully receive all the gifts that life has to offer me. I will receive the gift of nature, sunlight and sound of birds singing or spring showers or first snow of winter. I will open to receiving from others. It can be material gifts, money, a complement or a prayer
+  * I will make a commitment to keep wealth circulating in my life by giving and receiving life's most precious gifts: gift of caring affections, appreciations and love. Each time I will meet someone, i will silently wish them happiness, joy and laughter
 
