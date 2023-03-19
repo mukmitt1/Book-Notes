@@ -33,10 +33,10 @@
   * If you are president of country or chairman of corporation or you have lot of money, power goes with title. As soon as the title, the job, the money go away, so does the power
 * Self power is permanent. Because it is based on the knowledge of self
 * we can apply law of potentiality through daily practice of 
-  *  silence : means periodically withdrawing from  activity of speech, watching tv, radio,/ rading a book. without silennce, this creates turbulence in your internal dialogue. Inititally it is difficult and the internal dialogue quietens, you begin to experience pure potentiality
-  *  meditation: Ideally 30 min morning, 30 min evening. You will learn pure silence and awareness. Be still
-  *  non-judgement: constant evaluation of things as right or wrong, good or bad. When you are evaluating, classifying, labeling, analyzing, you create lot of turbulence  in internal dialogue
-  *  spending time in nature: when you do other, you can start spending time with nature
+  *  **silence** : means periodically withdrawing from  activity of speech, watching tv, radio,/ rading a book. without silennce, this creates turbulence in your internal dialogue. Inititally it is difficult and the internal dialogue quietens, you begin to experience pure potentiality
+  *  **meditation**: Ideally 30 min morning, 30 min evening. You will learn pure silence and awareness. Be still
+  *  **non-judgement**: constant evaluation of things as right or wrong, good or bad. When you are evaluating, classifying, labeling, analyzing, you create lot of turbulence  in internal dialogue
+  *  **spending time in nature**: when you do other, you can start spending time with nature
 
 ### 2. The Law of Giving
 
