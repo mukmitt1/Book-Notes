@@ -8,7 +8,7 @@
 * Succes is not just talking about material wealth
 * Success also includes good health, energy and enthusiasm for life, relationships, creative freedom, emotional and psychological stabilities and piece of mind
 * Success is a journey not destination
-* Law is the process by which unmanifest becomes the manifest, observer becomes observed, dreaamer manifests the dream
+* Law is the process by which unmanifest becomes the manifest, observer becomes observed, dreamer manifests the dream
 * All of the creation, everything that exist in physical world, is the result of the unmanifest transforming itself to the manifest
 
 ### 1. Law of Pure Potentiality or Law of Unity
