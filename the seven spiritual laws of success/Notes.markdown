@@ -40,7 +40,6 @@
 
 ### 2. The Law of Giving
 
-
 * Also called Law of receiving because the universe operates through dynamic exchange
 * Your body is in dynamic and constant exchange with the body of the universe
 * Your mind is dynamically interacting with the mind of the cosmos
@@ -63,3 +62,18 @@
   * Today I will gracefully receive all the gifts that life has to offer me. I will receive the gift of nature, sunlight and sound of birds singing or spring showers or first snow of winter. I will open to receiving from others. It can be material gifts, money, a complement or a prayer
   * I will make a commitment to keep wealth circulating in my life by giving and receiving life's most precious gifts: gift of caring affections, appreciations and love. Each time I will meet someone, i will silently wish them happiness, joy and laughter
 
+### 3. The Law of "Karma" or Cause And Effect
+
+* Karma is both action  and consequences of that action. It is cause and effect simultaneously
+* Everyone has heard the happiness "What you sow is what you reap". If we want to create happiness in our lives, we must learn to sow the seeds of happiness.
+* Karma implies the action of conscious choice-making. You & I are essentially infinite choice makers. 
+* Some of thes choices are made consciously, while others are made unconsciously
+* Best way to choose karmic law is to becomes consciosly aware of the choices we make in every moment
+* Every thing happening at this time is a result of choices we make in every moment.
+* If I insult you, you most likely make the choice of being offended.
+* If I were to pay you a complement, you most likely make the choice of being pleased or flatered. It is still a choice.
+* I could offend you or insult you, you could make the choice of not being offended.
+* When you make any choice - you can ask yourself 2 things - What are the consequences of these choice that I'm making?  Will these choiuce that I'm making now bring happiness to me and to those around me?
+* All those choice you select, it will result in form of behavior that is called spontaneous right action.
+* Universal help us if we select the choice. Your body experience 2 kind of sensation: sensation of comfort and sensatation of discomfort. At the moment you consciously make a choice, pay attention and ask your body, "If I make the choice, what happens?"
+* Most of the response coming from heart. It does not have win-lose orientation.
