@@ -46,3 +46,13 @@
 * Now use the mind to change the experience of hearing the sing. Try to turn the volume down, making the song quiet in your head. Turn the volume up a bit. Investigate what it is like to slow the song down or speed it up.
 * So now with little power, you can visualize, play music, and alter the experience in anyway you choose.
 * Loosing focus: while meditating , you may notice your cincentration slowly leaking. When you loose your focus, bring your attention to the last thing you remember and if not work work return to the breath
+
+### 4. Who is Listening - 5 min
+
+* Bring your awareness to the breath, but instead of focussing of physically feeling of breathing, listen to the sound of the body breathing. Inhaling & exhaling through the nostrills, listen closely to any noises coming from the breath
+* Open up your awareness to the other sounds present. car passing sound, noises within home or sound from nature, whatever is present, tune in to it
+* Mind recognize the sound but try to focus on actual experience of hearing. Imagine your ear as microphone. just picking up sound. Rcognize the rising and passing of the noise, how far away it appears and what direction it is coming. 
+* As one sound grab your awareness, tune in to it for a few moments. Experience the sound fully. Then open the mind and listen for other noised. Hearing mindfully, continue listening, investigating and opening up
+* At the end return to the breath for a minute. Without forcing on strainung, encoureage the mind to collect itself fully onto the sound of the breath in the body
+* Opening the eye and moving back into your life
+* Distracting sounds:  certain sound may be distracting, noises like construction, birdsong or people talking loudly, can draw you out of practice. When you find your self distarcted, make the act of hearing part of your practice.Try to remove yourself from judgement or critiicism about where the sound is coming from, and imagine you are hearing for the first time. Try to remove language from the sound and refrain from immediately identifying the source of noise. 
