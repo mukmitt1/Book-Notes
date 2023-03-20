@@ -65,6 +65,8 @@
 ### 3. The Law of "Karma" or Cause And Effect
 
 * Karma is both action  and consequences of that action. It is cause and effect simultaneously
+* Karma is energy, which in itself is neither good nor bad; these are just the labels people choose to attach to it
+* The energy created by an action has to be returned: “As yea sow so shall yea reap.” It cannot be avoided.
 * Everyone has heard the happiness "What you sow is what you reap". If we want to create happiness in our lives, we must learn to sow the seeds of happiness.
 * Karma implies the action of conscious choice-making. You & I are essentially infinite choice makers. 
 * Some of thes choices are made consciously, while others are made unconsciously
@@ -80,4 +82,12 @@
 * what about past karma?  3 choices you can do about past karma
   * **pay karmic debts**: Most people choose to do that - unconsciously. of course.  Sometimes there's a lot of suffering  involved in the payment of those debts.  But law of karma says no debt  in the universe ever goes unpaid
   * **transmute or transform your karma to a more desirable experience**: This is interesting process in which you ask yourself,as you are paying karmic debt, "What can I learn from the experience? Why is this happening and what is the message that the universe is giving to me? How Can I make the experience useful to my fellow human beings?"  example if you break your leg while playing football, you can ask, "what can i learn from this experience? what is the message universe is giving me?" perhaps the message is you need to slow down and be more careful or attentive to your body next time. Also How can I make this experience useful to my fellow human beings? you may write a book about playing football safely or you may design a specialshow or leg support that prevent injury. This way, while paying karmic debt, you convert adversity to benefit that may bring wealth and fullfuilment. this is the transmutation of your karma to positive experience. 
-  * **Transcend it**:  
+  * **Transcend it**:  When you perform an action, it creates a memory, which in turn generates a desire, which leads you to perform another action. For example: You take your first yoga class (action), then you know what happens in a yoga class (memory), and if you enjoyed the class, you decide to go back the following week (desire), and that following week you turn up again with your mat (action).Actions, memories, and desires are the Karmic software that run your life. The subtle energy created by your actions is stored within your memories and desires and is activated—sometimes immediately, but more often at some future time. To use the earlier example, you took the yoga class and then forgot about it until months later when you’re walking through town and notice a yoga studio. You remember your past experience, which triggers the desire to take another class. 
+* You constantly create Karma from your actions, thoughts, words, from the actions of others under your control, from your attitudes, expectations, and lifestyle
+* You create Karma from the intended actions you perform consciously and also from actions done unconsciously from ignorance.
+* Apply the law of karma
+  * whenever i make a choice, i will ask myself 2 questions "what are the consequences of this choice", "will this choice bring fulfillment and happiness to me also to those who are affected by this choice"
+  * I will then ask my heart for guidance and be guided by its message of comfort or discomfort. if choices feels comfortable, i will proceed otherwise i will pause and see the consequences of my action with my inner vision. this guidance will enable me to make spontaneously correct choices for myself and all those around me.
+  * today i will witness the choices i make in each moment. And in the mere witnessing of these choices, i will bring them to my conscious awareness.
+
+
