@@ -91,3 +91,4 @@
   * today i will witness the choices i make in each moment. And in the mere witnessing of these choices, i will bring them to my conscious awareness.
 
 
+### 4. The Law of Least Effort
