@@ -92,3 +92,12 @@
 
 
 ### 4. The Law of Least Effort
+
+* Principle of least action, of no resistence. Also called principle of harmony & love
+* when we learn from nature, we easily fulfill our desires.
+* grass does not try to grow, it just grows. Fish don't try to swim, they jusy swim. Flowers don't try to bloom, they bloom, Bird don't try to fly, they fly. It is the nature of babies to be in bliss. It is the nature of sun to shine, it id human nature to make our dreams manifest into physical form, easily & effortlessly.
+* In vedic science, this principle is known as the principle of economy of effort or do less and accomplish more. Ultimately you come to the state where you do nothing and accomplish everything. commonly called a mirracle is actually an expression of the Law of Least Effort.
+* when you are in harmony with nature, you are established in the knowledge of your true self
+* Least effort is expanded when your actions are motivated by love, because nature is held togther by energy of love.   
+* when you seek power and control over other people, you waste energy.
+* when you seek money or power for the sake of ego,  
