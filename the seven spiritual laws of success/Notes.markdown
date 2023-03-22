@@ -100,4 +100,14 @@
 * when you are in harmony with nature, you are established in the knowledge of your true self
 * Least effort is expanded when your actions are motivated by love, because nature is held togther by energy of love.   
 * when you seek power and control over other people, you waste energy.
-* when you seek money or power for the sake of ego,  
+* when you seek money or power for the sake of ego, you spend energy chasing the illusion of happiness instead of enjoying happiness in the moment.
+* When you seek money for personal gain only. you cut off the flow of energy to yourself and interfere woth the expression of nature intelligence
+* when your action are motivated by love, there is no waste of energy. infect your energy multiplies and accumlates and the surplus  energy you gather and enjoy can be channeled to create anything you want, including unlimited wealth.
+* you can think of your physical body as device for controlling energy. It can generate, store and expend energy, and if you create in efficiemt way, then you can create any amount of wealth. Ego consumes greatest amount of energy.
+* When internal reference point is the ego, when you seek power and  control over other people or seek approval from others. you spend your energy in a wasteful way.
+* When internal reference point is sprit, you are immune to criticism and unfearful of any challange
+* 3 components of the Law of least effort:. 
+  * **1. Acceptance**: Today I will accept people situations, circumstances and events as they occur.  Means I will know that "this moment is as it should be" because whole universe is at it should be. when you are struggle against this moment, you are struggling against the whole universe. this means acceptance of this moment is total & complete You acceptance things as they are, not as you wish. You can wish for things for future but this moment you have accept things as they are.
+  * When you frustrated or upset by a person or situation, remember you are not reacting to the person or situation, but to your feeling about the person or the situation. When you recognize and understand this completely, you are ready to take responsibility for how you feel and to change it.
+  * **2. Responsibility**: Not blaming anything or anyone for your situation including yourself. Having accepted this circumstances, this event, this problem, responsibilities then means the ability to have a creative responseto the situation as it is now. All problem contains the seeds of opportunity,and this awareness allows you to take the moment and transform it into better situation. You will start considerinhg problem as opportunity. There is hidden meaning behind all events, and this hidden meaning is serving your own evolution.
+  * **Defenselessness**: You have relinquished the need to convince or persuade others of your point of view. Someone told, past is history, furure is mystery and this moment is gift. Thats why this moment is called "present". Make a commitment to follow the path of no resistence.
