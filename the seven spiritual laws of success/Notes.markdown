@@ -145,3 +145,10 @@
   * 1. Make a list of desires. carry the list with me whereever i go. I will look at the list before I go silence or meditation. Look at it before go to sleep. Look at it when i wake up in the morning.
   * 2. release list of desires and surrender it to the womb of creation, trusting when things don't seem to go my way, there is a reason
   * 3. i will remind myself to practice present-moment awareness in all my actions. i will accept the present as it is and manifest the future through my deepest most cherished intentions and desires.  
+* Outsider example
+* For example, take two people who hate their jobs. Let's call them Steve and John.
+  * Steve is unhappy, and he spends his time lamenting about how awful things are and how he wished it was different. If one of his co-workers does something to upset him (which happens quite often) he gets angry and complains about how she should do things differently. He spends a great deal of his time wishing and daydreaming of a better job.
+  * John is also unhappy. He also dreams of a better job, but he doesn't spend all day daydreaming. Instead, he focuses on researching other job opportunities, and he enrolls in a night class to improve his "marketability." John's co-workers also often upset him, but instead of wishing they were different, he uses it as fuel to be more productive in his job search
+* Steve is clearly putting his attention on the future. Daydreaming and wishing don't accomplish anything. At the same time, his complaining is indicative of the fact that he is trying to change things he cannot. His intention is in the present.
+* John has a much healthier approach. While his intention is in the future ("I will get a new job soon.") his attention is on the present ("What can I do now to get a new job?").Who do you think is going to get a new job first? 
+* It doesn't take a rocket scientist to see that in this example Steve is more negative and John is more positive. This balance between intention and attention is one of the key things that sets positive people apart from negative people.
