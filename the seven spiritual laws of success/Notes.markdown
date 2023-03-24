@@ -152,3 +152,29 @@
 * Steve is clearly putting his attention on the future. Daydreaming and wishing don't accomplish anything. At the same time, his complaining is indicative of the fact that he is trying to change things he cannot. His intention is in the present.
 * John has a much healthier approach. While his intention is in the future ("I will get a new job soon.") his attention is on the present ("What can I do now to get a new job?").Who do you think is going to get a new job first? 
 * It doesn't take a rocket scientist to see that in this example Steve is more negative and John is more positive. This balance between intention and attention is one of the key things that sets positive people apart from negative people.
+
+### 6. Law of Detachment
+
+* Law says that in order to aquire anything in the physical universe, you have to relinquish your attachment to it
+* Does not mean give up the intention to create your desire
+* you don't give up the intention and desire, you give up your attachment to your result
+* The moment you relinquish your attachment to the result, combing one-pointed intention with detachment at the same time.you will have that which you desire
+* Detachment is based on the unquestioning belief in the power of your true self.
+* Attachment is based on fear and insecurity
+* Everything else is a symbol - cars, house, bank notes, clothes, planes etc. Symbol is come and go.
+* Chasing symbols is like settling for the map instead of territory. It creates anxiety; its ends up making you feel hollow and empty inside because you exchange youself for the symbol of yourself.
+* Attachment comes from poverty consciosness because attachement is always to symbols
+* Detachment is synonymous with wealth consciousness because with detachment there is freedom to create and also have joymen and laughter. 
+* without detachmenmt we are prisioners of helplessness, hopelessness, quiet desperation and seriousness
+* People are constsantly seeking secuity and seeing security is very ephemeral thing
+* Even attachment to money is a sign of insecurity.  i.e. if i have X million dollars then I'll be secure. Then i will be financially indepemdemt and i will retire.But it never happens
+* Security never comes from security alone
+* Sesrch for secuity is an illusion
+* Search for security and certainty is actually an attachment to the known. But known is our past
+* Uncertainty on the other hand is the fertile ground pf pure creativity and freedom. Uncertainity means stepping into the unknown in every moment of our existence.
+* The unknown is the field of all possibilities
+* Applying the law
+  * I will commit myself to detachment.I will allow myself & those around me the freedom to be as they are.I will not rigidly impose my idea how things should be. I will not force solution on problems, thereby creating new problems. i will participate in everything with detached involvement
+  * Today I will factor in uncertainty as an essential ingradients of my experience.in my willingness to accept uncertainty, solutions will spontaneously emerge out ofthe problem. Uncertain is my part of freedom
+  * I will step into the field of all possibilities and anticipate the excitement that can occur when i remain open to an infinity of all possibilities, i will experience all the fun, adventure, magic & mystery of life.  
+* 
