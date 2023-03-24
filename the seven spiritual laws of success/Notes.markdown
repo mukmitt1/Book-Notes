@@ -177,4 +177,23 @@
   * I will commit myself to detachment.I will allow myself & those around me the freedom to be as they are.I will not rigidly impose my idea how things should be. I will not force solution on problems, thereby creating new problems. i will participate in everything with detached involvement
   * Today I will factor in uncertainty as an essential ingradients of my experience.in my willingness to accept uncertainty, solutions will spontaneously emerge out ofthe problem. Uncertain is my part of freedom
   * I will step into the field of all possibilities and anticipate the excitement that can occur when i remain open to an infinity of all possibilities, i will experience all the fun, adventure, magic & mystery of life.  
-* 
+
+
+### 7. Law of Dharma or Purpose in life
+
+* Dharma in sanskrit is purpose in life
+* According to this law, you have a unique talent and unique way of expressing it.
+* There is something that you can do better than anyone else in the world - for every unique talent and unique expression of thar talent, there are unique needs
+* when unique needs are matchedwith your talents, that is the spark creates affluence
+* if you start children from the beginning withhumanity this thought, you'd see the effect in their lives
+* You have reason to be here and you have to find out
+* Ask yourself  hou you can serve humanity and what your unique talents are
+* 3 components of law of Dharma
+  * Each of us here to discover our true self, to find out on our own that our true self is spritual. we are spritual beings that have occasional human experiences. 
+  * Express unique talent.- you have one talent and when you do that thing, you lose track of time.
+  * Service to Humanity : How can i help? instead of what's in it for me? The question "What's in it for me"is the internal dialogue of ego, "How can i help?" is internal dialogue of the spirit 
+* Applying the law
+  * Today i will lovingly nurture the god or goddess in embryo that lies deep within my soul. i will pay attention to the spirit within me that animates both my body and my mind.
+  * i will make a list of unique talent. then i will list all the things that i love to do while expressing my unique talent. when i express my unique talent and use in the service of humanity, i lose track of time and create abundence in my life as well as other lives
+  * I will ask myself "Jow can i serve?" or "how can i help"? the answer will help me to serve my fellow human beings with love
+
