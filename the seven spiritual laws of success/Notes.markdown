@@ -111,3 +111,17 @@
   * When you frustrated or upset by a person or situation, remember you are not reacting to the person or situation, but to your feeling about the person or the situation. When you recognize and understand this completely, you are ready to take responsibility for how you feel and to change it.
   * **2. Responsibility**: Not blaming anything or anyone for your situation including yourself. Having accepted this circumstances, this event, this problem, responsibilities then means the ability to have a creative responseto the situation as it is now. All problem contains the seeds of opportunity,and this awareness allows you to take the moment and transform it into better situation. You will start considerinhg problem as opportunity. There is hidden meaning behind all events, and this hidden meaning is serving your own evolution.
   * **Defenselessness**: You have relinquished the need to convince or persuade others of your point of view. Someone told, past is history, furure is mystery and this moment is gift. Thats why this moment is called "present". Make a commitment to follow the path of no resistence. I will remain open to all point of view and not be rigidly attached to any one of them.
+
+
+### 5. Law of Intension and Desire
+
+* Energy and information exist everywhere in nature. Even at quantum field level .
+* Quantum field is influenced by intension & desire.
+* Flower, rainbow, tree. blade of grass, human body when broken down to essential components, are energy and information
+* WHole universe, in its essential nature is the moment of energy and information
+* Only different between human and tree is the informational and energy content of your respective bodies.
+* In the scheme of nature, human is priviledge species. We have a nervous system that is capable of becoming aware of energy and informational content of localized field
+* We experience this field subjectively as our thoughts, feelings, emotions, desires. memories, drivers and beleifs. This same field is experienced objectively as the physical body and through that body, we experience this field as the world. 
+* Your body is not separate from the bpdy of the universe. You are like a wave, wiggle
+* Nervous system is aware of information and energy of its own quantum field. you can consciously change the energy and information content of your own quantum mechanical body and therefore influence the energy and information content of extended body - your environment, your world
+* Conscious change is brought about by the 2 qualities inherent in consciousnessi -  attention and intention. Attention energies, intention transform
