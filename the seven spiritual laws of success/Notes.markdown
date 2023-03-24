@@ -125,3 +125,23 @@
 * Your body is not separate from the bpdy of the universe. You are like a wave, wiggle
 * Nervous system is aware of information and energy of its own quantum field. you can consciously change the energy and information content of your own quantum mechanical body and therefore influence the energy and information content of extended body - your environment, your world
 * Conscious change is brought about by the 2 qualities inherent in consciousnessi -  attention and intention. Attention energies, intention transform
+* whatever you put your attention on will grow stronger in your life. whatever you take your attention away from dis-integrate, disappear
+* Intention trigger transformation of energy and information. Intention organizes its own fulfillment
+* Quality of intention on the object of attention will orchestrate an infinity of space-time events to bring about the outcome intended. this is because intention in fertile ground of attention has infinite organizing power.
+* Infinite organizing power means the power to organize an infinity of space-time event, all at the same time
+* we see the expression of this infinite organizing power in every blade of grass, every apple blossom, every cell of our body
+* Through your intent, you can command the law of nature to fulfillment your dreams and desire.
+* Intention is real power behind desire. Intention is powerful because intent is desire without attachement to outcome. Desire alone is weak because desire is most people is attention with outcome.
+* Intent is for the future but your attention is in the present. Because future is creation in the present. You must accept the present as it is.
+* you should never struggle againt the present
+* Learn to harness the power of intention, and you create anything you desire,
+* 5 steps for fulfilling your desires,  intention generates its own power:
+  * 1. Slip into gap. Means center yourself in that silent space between thoughts, to go into the silence
+  * 2. Established in that state of being, release your intentions and desires. In gap, there is no thought, these is no intention but as you come out of the gap - at that junction between the gap and thought, you introduce the intention
+  * 3. Remain in the state of self refferral. Not to look at yourselgf through the eye of the world or allow yourself to be influenced by the opinions and critisms of others. Keep your desires to yourself
+  * 4. Relinquish your attachment to the outcome. It means enjoy every moment in the journey of your life even we don;t know the outcome.
+  * Let the uinverse handle the details
+* How to Applying
+  * 1. Make a list of desires. carry the list with me whereever i go. I will look at the list before I go silence or meditation. Look at it before go to sleep. Look at it when i wake up in the morning.
+  * 2. release list of desires and surrender it to the womb of creation, trusting when things don't seem to go my way, there is a reason
+  * 3. i will remind myself to practice present-moment awareness in all my actions. i will accept the present as it is and manifest the future through my deepest most cherished intentions and desires.  
