@@ -10,7 +10,7 @@
 * if you shift route of plane by 1 degree, imagine LAX to NY flights, just 3.5 degree south, you will be in DC
 * Success is the product od daily habits, not once in lifetime transformation
 * If you want to predict, where you will end up in life, all you have to do is follow the curve of tiny gains or losses, and see how life will change in 10-20 year down the line. Are you spending less than each month, are you making it to gym each week, are you reading the book and learning new each day. Tiny battles  are the one that define your future.
-* Habits can comput for you or against you
+* Habits can compound for you or against you
   * **Productivity Compounds (Positive compounding)**:Accomplishing one extra task is a small feat in any given day but it counts for a lot over an entire career. Effect of automating an old task or mastering a new skill can be even greater. More task you can handle without thinking, the more your brain free to focus on other areas.
   * **Knowledge Compounds (Positive compounding)**:Learning one new idea won't make you genius, but commitment to lifelong learning can be transformative. Each book you read, teaches something new but also opens different way of thinking about old ideas. 
   * **Relationships Compounds (Positive compounding)**: People reflect your behavior back to you. the more you help others, the more other wants to help yoy. Being little nicer in each interaction, can result in network of broad and strong connections over time.
