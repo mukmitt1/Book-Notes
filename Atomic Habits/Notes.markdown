@@ -17,6 +17,18 @@
   * **Stress Compounds (Negative compounding)**: Frustration of traffic jam, weights of parenting responsibilities, strain of high blood pressure. By themselves these commomn cause of stress is manageable. But when they persist for years, little stress compounds into serious health issues.
   * **Negative thoughts Compounds (Negative compounding)**: The more you think of yourself as worthless, stupid, or ugly, the more you condition yourself to interpret life that way, You get trapped in a thought loop. The same is true how you think about others. Once you fall into the habit of seeing people as angry, unjust or selfish, you see those kind of people everywhere.
   * **Outrage Compounds (Negative compounding)**: Riots, protests and mass movements are rarely the result of single event.Instead of long series of microaggregations and daily aggavations slowly multiply until one event tips the scales and outrages spreads like wildfires
+* Ice cube not melts on 26,27,28,29,30, 31 - No change, as soon as 32 degree - cube melt. Earlier one degree shift no difference but later huge difference. 
+* Breakthrough moments are ofte nthe results of many previous actions 
+* Cancer spends 80% of its life undectectable, then takes over the body in months
+* Bambook not visible in 1st five years.It builds extensive root system underground before exploding 90 feets in six weeks
+* Habits often appear no differences until you cross a critical threashold
+* People makes small changes , fails to see tangible results, and decide to stop. In order to make a meaningful difference, habit need to persist long enough to break through this plateau called plateau of Latent potential
+* If you find struggle with building new habit or break bad habit, it is not beacause you lost your ability of improve. It is often because you have not crossed the plateau of latent potential
+* Complaining about not achieving success despite working hard is like complaining about and ince cube noyt melting when you heated from 26 to 31 degree. You work is not wasted but it is just being stored
+* When you break Plateau of Latent Potential, people will call it an overnight success. Outside world only see most dramatice event rather than all that preceded it.
+* Similar to earth quake, 2 tectonic plates can grind each other for millions of year, tension slowly building all the whoile.
+* Task of building a good habit is like cultivating a delicate flower, one day at a time.
+* 
 
 
 
