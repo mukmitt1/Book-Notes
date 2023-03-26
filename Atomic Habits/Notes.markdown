@@ -27,8 +27,25 @@
 * Complaining about not achieving success despite working hard is like complaining about and ince cube noyt melting when you heated from 26 to 31 degree. You work is not wasted but it is just being stored
 * When you break Plateau of Latent Potential, people will call it an overnight success. Outside world only see most dramatice event rather than all that preceded it.
 * Similar to earth quake, 2 tectonic plates can grind each other for millions of year, tension slowly building all the whoile.
+* All big things comes from small beginnings, Seeds of every habit is a single tiny decision. But as the decision is repeated, a bait sprout and grows stronger.
 * Task of building a good habit is like cultivating a delicate flower, one day at a time.
+* Forget about goals, focus on system instead.
+* Usually we create goal like - Getting into better shape, building a successful business, relaxing more, worrying less, spending more time with friends and family. 
+* For many years I approached my habits too.  Each one was a goal to be reached. I set goal for grades, weights I wanted to lift in the gym. I succeed at a few but I failed a lot. At the end I realized that my results has nothing to do with the goals i set and everything to do with the systems i followed.
+* System and Goals - Goal is about the results you wants to achieve, system are the process that lead to those results.
+  * If you are a coach,  your goal is to win a trophy. your system is the way you recruit player, manage assistant coaches and conduct practices.
+  * If you are a musician, you goal might be play new piece, your system is how you practice, how you tacle different measure  
+* if you completely ignored your goals and focus only on your systems would you still succeed.  Answer is yes, you can succeed
+* Goal in any sports is to finish with the best score, but it would be ridiculous to  spend the whole game starting at scorecard
+* Goals are good for setting a direction, but system are best for making progess
+* Probem 1: Winners/Losers have sane goal: All have same goal but it is a system of continous small improvements 
+* Problem 2: Achieving a goal is only a momentry change: If you goal is to clean the room, you may achieve you goal by cleaning the room one time. You are left chasing the same outcome because you never changed the system behind it. You treat symptom without addressing the cause.  Fix the input, output will fix automatically
+* Problem 3: Goal restrict your happiness: The implicit assumption behind goal, once i reach my goal, i will be happy.It makes no sense to restrict your satisfaction to one sceanario when there are many path to success. A System first provides the anti-dot. When you fall in love with the process rather than product, you don;t have to give yourself persmission to happy. If your system is running, you can happy at any time.
+* Problem 4: Goals are at odds with long term progress: Many runner work hard for months but as soon as they cross the finish line, they stop training. Race is no longer there to motivate them. That is reason people move to old habit. Purpose of setting goals to win the game. Purpose of building system is to continous playing the game.True longterm thinking is goal less thinking
+* Focus on overall system rather than a single goal. Atomic habit refer to tiny change, a marginal gain, a 1% improvement
+* Just like atom is building blocks of molecules. atomic habit is building blocks of remarkable results. Habits are like the atom of our lives.
+
+### How your habit shape your identity (and vice versa)
+
 * 
-
-
 
