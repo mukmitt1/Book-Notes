@@ -72,4 +72,10 @@
  * Voting is behavior that is impossible under a certain set of beliefs
  * Similar pattern exist whether we are discussing individuals, organizations or societies
  * There are set of beliefs and assumptions that shape the system, an identity behind the habits
+ * Behavior that is incongruent with the self will not last
+   * You may want more money but if your identity is someone who consumes rather creates, then you'll continue to be pulled toward spending rather than earning.
+   * You may want better health, but if you continue to priorties comfort over accomplishment, you will be drawn to relaxing rather than training.
+ * It is hard to change your habit, if you never change your underlying belief that led to past behavior. You have new goal and a new plan, but you haven't changed who you are.
+ * Story of Brian Clark- He chewed fingernails. It started as a nervous habit when i was young. One day through mindful willpower alone, i managed to do it. Clark did something new. He asked his wife to scheduled manicure. His thought was, if I started paying to maintain my nails, i will not chew them.  It worked but not because of monetary reason. Manicure made his finger look too nice for the first time. He never chewed his nails after that. Ultimate reason of intrinsic motivation was habit become part of identity
+ * 
 
