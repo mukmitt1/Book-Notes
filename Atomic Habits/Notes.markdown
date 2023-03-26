@@ -47,5 +47,29 @@
 
 ### How your habit shape your identity (and vice versa)
 
-* 
+* Why it is so easy to develop bad habits and so hard to form good ones?
+* Habits like exercise, meditation, jounaling and cooking are resonable for 2 days and then become a hassle
+* Ones your habits are established, they seem to stick around forever - especially the unwanted ones. Unhealthy habits like eating junk food, watching too much tv, smoking etc difficult to break
+* Changing habits because of 2 reasons:
+  * 1. We try to change  the wrong things
+  * 2. we try to change our habits in wrong way
+* 3 levels change can occur (behavior change). 3 layers
+  * 1. **Changing your outcomes**: Concerned with changing your results: losing weight, publishing a book, winning a championship
+  * 2. **Changing your process**: Concerned with changing your habits and systems. Implementing new routine at the gym, decluttering your desk for better workflow, develop meditation practice
+  * 3. **Changing your Identity**: concerned with changing your beliefs: your worldview, your self image, your judgement  about yourself & others. Most of the beleifs, assumptions and biases you hold are associated with this level.
+* Outcomes are what you get. Processes are about what you do. Identity is about what your beleive.
+* When it comes to building habits that last - When it comes to 1% improvements - the problem is not that 1 level is better or worse than another. ALl level of change are useful.  The problem is direction of change.
+* Many People begin the process of changing their habits by focussing on what they want to achieve. This leads us to outcome-based habits
+* Alternate is to build **identity-based habits**.  With this approach, we start by focussing on who we wish to become.
+* Example 2 people resisting a cigrette. When offered a smoke, 
+  * first person "No thanks, I'm trying to quit" - Here person beleive, he is a smoker who is trying to be something else. They are hoping their behavior will change while carrying around same belief
+  * Second person "No thanks, I am not a smoker" - This statement signals a shift in identity. Smoking was part of former life, not their current one
+* Most people don't even consider identity change when they set out to improve.
+  * They just think "I want to be skinny (outcome) and if I strict to the diet, then I'll be skinny (Process). 
+  * They set goals and determine the actions they should take to achieve those goals without considering the belief that drives their actions
+  * They never shift the way that look at themselves, and never realize that their old identify can sabotage their new plans for change. 
+ * Behind every system of action is a system of beliefs. System of democracy is founded  on belief like freedom, majority rules and social equality. System of dictatorship has different belief like absolute authority and strict obedience.
+ * Voting is behavior that is impossible under a certain set of beliefs
+ * Similar pattern exist whether we are discussing individuals, organizations or societies
+ * There are set of beliefs and assumptions that shape the system, an identity behind the habits
 
