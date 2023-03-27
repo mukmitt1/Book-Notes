@@ -6,7 +6,7 @@
 * same way as money multiplies through compound interest, the effect of your habits multiplies as you repeat them
 * they seem to make little difference on any given day and yet the impact they deliver over the months and years can be enormous
 * We make a few changes but the result never seem to come quickly and so we slide back into the previous routine
-* unfortunately, slow pace of transformation also makes it easy to let a bad habit slide. when we repeat 1% errors, day ny day , by replicating poor decision, duplicating tiny mistakes and rationalizing little excuses, our small choices compounds into toxic results. 1% declines here and there, eventually leads to problem
+* unfortunately, slow pace of transformation also makes it easy to let a bad habit slide. when we repeat 1% errors, day by day, by replicating poor decision, duplicating tiny mistakes and rationalizing little excuses, our small choices compounds into toxic results. 1% declines here and there, eventually leads to problem
 * if you shift route of plane by 1 degree, imagine LAX to NY flights, just 3.5 degree south, you will be in DC
 * Success is the product od daily habits, not once in lifetime transformation
 * If you want to predict, where you will end up in life, all you have to do is follow the curve of tiny gains or losses, and see how life will change in 10-20 year down the line. Are you spending less than each month, are you making it to gym each week, are you reading the book and learning new each day. Tiny battles  are the one that define your future.
