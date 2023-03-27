@@ -96,5 +96,9 @@
    * How to change your identity is 2 step processes
      * 1. Decide the type of person you want to be
      * 2. prove it to yourself with small wins
-   * The most effective way to change your habit is to focus not on what you want to achieve. but on who you wish to become     
+   * The most effective way to change your habit is to focus not on what you want to achieve. but on who you wish to become 
+     * I am the kind of teacher who stands up for his/her students
+     * I am the kind of doctor who gives each patient the time and empathy they need.
+     * I am kind of manager who advocates for his employee
+     * i am kind of writer who is consitent and reliable     
 
