@@ -77,5 +77,13 @@
    * You may want better health, but if you continue to priorties comfort over accomplishment, you will be drawn to relaxing rather than training.
  * It is hard to change your habit, if you never change your underlying belief that led to past behavior. You have new goal and a new plan, but you haven't changed who you are.
  * Story of Brian Clark- He chewed fingernails. It started as a nervous habit when i was young. One day through mindful willpower alone, i managed to do it. Clark did something new. He asked his wife to scheduled manicure. His thought was, if I started paying to maintain my nails, i will not chew them.  It worked but not because of monetary reason. Manicure made his finger look too nice for the first time. He never chewed his nails after that. Ultimate reason of intrinsic motivation was habit become part of identity
- * 
+ * Rather than saying i am type of person who want this, say "i am type of person who is this"
+ * the more pride you have in a particular aspect of your identity, the more motivated you will be to maintain the habit associated with it.
+ * If you like hair, you will develop all sorts of habits to maintain the habit associated withh it.
+ * If you like the biceps, you will make sure never miss upper body workout
+ * once your pride gets involved, you'll fight tooth and nail to maintain your habit
+ * True behavior change is identity change.Improvements are temp until they part of who you are
+   * the goal is not to read a book, the goal is to become a reader
+   * the goal is not to run a marathon, the goal is to become a runner
+   * the goal is not to learn an instrument, the goal is  become a musician
 
