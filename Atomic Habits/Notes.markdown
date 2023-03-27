@@ -92,5 +92,9 @@
     * When you make bed each day. you embody youe identity as organized person
     * When you write each day, you embody the identity of a creative person
     * when you train each day, you embody the identity of athletic person
-   * the more you repeat a behavior, the more you reinforce the identity associated with that behavior    
+   * the more you repeat a behavior, the more you reinforce the identity associated with that behavior
+   * How to change your identity is 2 step processes
+     * 1. Decide the type of person you want to be
+     * 2. prove it to yourself with small wins
+   * The most effective way to change your habit is to focus not on what you want to achieve. but on who you wish to become     
 
