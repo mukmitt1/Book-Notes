@@ -86,4 +86,11 @@
    * the goal is not to read a book, the goal is to become a reader
    * the goal is not to run a marathon, the goal is to become a runner
    * the goal is not to learn an instrument, the goal is  become a musician
+ *  progress requires unlearning. Becoming the best version of yourself requires you to continously edit your belief and upgrade/expand your identity\
+ *  Your identity emerges out of your habit. You are not born with preset beliefs. Every belief learned and conditioned through experience
+ *  Your habit embody your identity
+    * When you make bed each day. you embody youe identity as organized person
+    * When you write each day, you embody the identity of a creative person
+    * when you train each day, you embody the identity of athletic person
+   * the more you repeat a behavior, the more you reinforce the identity associated with that behavior    
 
